@@ -1,0 +1,1 @@
+# SEQTA_Shared_Assets
